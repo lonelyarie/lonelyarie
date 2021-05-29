@@ -1,8 +1,9 @@
 - 👋 Hi, I’m @lonelyarie
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 👀 I’m interested in just being loved 
+- 🌱 I’m currently learning when imma kill myself
+- 💞️ I’m looking to collaborate on people who understands me
+- 📫 How to reach me at the edge of a cliff
+
 
 <!---
 lonelyarie/lonelyarie is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
